@@ -6,4 +6,4 @@ i like mabtpit, sfawtde, bad things, fionna and cake, adventure time, electric d
 
 sign my ata color my tree and feel free to ask for my discord if you want to be oomfs. c+h and boops encouraged. no dni i block
 
-sign my ata and feed my [tamanotchi](https://tamanotchi.world/27461c)
+check my rentry and feed my [tamanotchi](https://tamanotchi.world/27461c)
