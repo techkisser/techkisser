@@ -1,9 +1,9 @@
-profile retheme wip sorry for that
+![](https://64.media.tumblr.com/244dfa94baca2e0d35df5c54a8cced68/c21081c3aa498e71-f9/s1280x1920/214c7da1ece71f7065fc79e2292cd38e88bd9c0e.pnj)
 
-miche sonnet or anthony :^) he they it or any i dont really notice nor care. transmasc aroace gay yumedanshi
+ㅤㅤmiche sonnet or andris (= ⩊ =)೨ he they it or any i dont really notice nor care what prns you use on me. transmasc aroace gay yumedanshi
 
-i like mabtpit, sfawtde, bad things, fionna and cake, adventure time, electric dreams, reanimator, smiling friends, die of death, mabtpias, roblox admins and deltarune / undertale. talking about game theories and cartoons is fun for me
+ㅤㅤi like gridworld, hetalia, homestuck, sfawtde, scandinavia and the world, undertale, deltarune, hfjone, fionna and cake, smiling friends, minesweeper plus and scott pilgrim vs the world
 
-sign my ata color my tree and feel free to ask for my discord if you want to be oomfs. c+h and boops encouraged. no dni i block
+ㅤㅤfeel free to ask for my discord if you want to be oomfs. c+h and boops encouraged. no dni i block freely. check info rentry recommended
 
-check my rentry and feed my [tamanotchi](https://tamanotchi.world/27461c)
+ㅤㅤfeed my [tamanotchi](https://tamanotchi.world/27461c) they're starving. also sign my atabook please it'ss very dead
